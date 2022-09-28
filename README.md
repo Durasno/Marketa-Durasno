@@ -1,2 +1,5 @@
-# Peachsshop
-_config.yml
+# Marketa de Durasno
+## Shop
+## Commission 
+## Gallery 
+## Recipes 
