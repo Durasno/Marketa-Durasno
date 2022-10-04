@@ -8,4 +8,9 @@
 ![0c18aefa2ee686b75d91ed38bf7d033b](https://user-images.githubusercontent.com/114519167/193115049-c27913c2-113d-4bd9-ac2b-356f7f57e560.jpg)
 
 ## Thoughts
+honestly i wished to have made this look way better but since i have no wifi at home this the best i can do ;-;
+okay but ike yk what baking is actually so much fun so is designing outfits, but i really dont have time for those things that i like anymore :(
 ## Recipes 
+I will never share my earl grey cookie recipe, tis too valuable >:0
+I shall leave a pumpkin bread recipe here
+(https://www.onceuponachef.com/recipes/spiced-pumpkin-bread.html)
